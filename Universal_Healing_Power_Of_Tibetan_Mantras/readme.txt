@@ -1,0 +1,13 @@
+Universal_Healing_Power_Of_Tibetan_Mantras
+
+01.Chenresi (Avalokiteshvara - Mantra)
+02.Men Lha (Medicine-Buddha - Mantra)
+03.Lobön Rinpoche (Vajra Guru - Mantra)
+04.Dorje Sempa (Varja-Sattva - Mantra)
+05.Öhpa Me (Amidaba - Mantra)
+06.Tshe Pak Me (Long-life - Mantra)
+07.Dolma (Tara - Mantra) 
+08.Namgyel Ma (Vijaya-Devi - Mantra)
+09.Dcham Päl Yang (Manjushri - Mantra) 
+10.Tchu Du (Five Elements - Mantra)
+11.Drip Sel (Coloured Rain Shower - Mantra)
